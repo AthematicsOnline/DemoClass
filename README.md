@@ -1,2 +1,2 @@
 # DemoClass
-For a DryRun 
+This account is strictly for my students
